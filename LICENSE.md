@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with secure blur sniper bot | snipe-list-management + price-impact-analysis. Featuring snipe-list-management and price-impact-analysis, it's the
 
 
 
